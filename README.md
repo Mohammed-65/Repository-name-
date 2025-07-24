@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Mohammed Alfayyadh
 
 🎓 **Honor Student | Full Scholarship Recipient | MAWIBA Member**  
-♟️ **Founder, Vision Chess Club | Competitive Player | FIDE-rated Tournament Organizer**  
+♟️ **Founder, Only Move Chess Club | Competitive Player | FIDE-rated Tournament Organizer**  
 💻 **Cybersecurity & Programming Enthusiast | KAUST & PSU Certified**  
 📚 **Award-Winning Student | Kangaroo Gold Medalist | Science & Math Fair Winner**
 
